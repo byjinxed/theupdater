@@ -10,4 +10,4 @@ Subjects will be added soon. Have fun and if you need any help or want things ad
 
 ### Disclaimer: The Updater will not contain answers to any homework or assignments. It will give guidance and extra explanations if needed, for things that are unclear.
 
-Made By: Home Goal Work Vigor
+-byjinxed
